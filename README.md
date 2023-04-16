@@ -50,5 +50,5 @@
 
 ## Just follow☝️ me and Star⭐ my repository 
 
-# [Buy me a Coffee☕](https://www.buymeacoffee.com/spidy20)
-## [Donate me on PayPal(It will inspire me to do more projects)](https://www.paypal.me/spidy1820)
+# [Buy me a Coffee☕](https://www.buymeacoffee.com/spidy20)!
+## [Donate me on PayPal(It will inspire me to do more projects)](https://www.paypal.me/spidy1820)!
